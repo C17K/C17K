@@ -10,7 +10,7 @@
 <img src="https://img.shields.io/badge/dynamic/json?&label=Total%20Forks&color=008042&style=flat&style=for-the-badge&query=%24.forks&url=https://api.github-star-counter.workers.dev/user/clay17k" alt="Profile Forks"></a>
 <a href="https://discord.gg/kuyu" target="_blank"> <img src="https://discordapp.com/api/guilds/942426336348233799/widget.png?style=shield" alt="shield.png"></a>
 
-📩・**Want to reach? Add clay#2000 on [discord](https://discord.gg/kuyu) or mail clay17k@gmail.com**
+📩・**Want to reach? Add clay#1000 on [discord](https://discord.gg/kuyu) or mail clay17k@gmail.com**
 </a><img align="right" src="https://github-readme-stats.vercel.app/api/top-langs?username=clay17k&count_private=true&hide=procfile&theme=dark&border_color=000000&cache_seconds=1800&layout=compact&langs_count=10&custom_title=Most Used Coding Languages" alt="clay" /> </p>
 🌐・**Discord Server: [Kuyu](https://discord.gg/kuyu)**
 
