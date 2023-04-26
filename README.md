@@ -1,8 +1,8 @@
-
 <img src="https://readme-typing-svg.herokuapp.com/?font=Fira+Code&duration=2500&pause=500&color=000000&width=655&lines=%F0%9F%8C%BC%20clay%231000" alt="clay1000" />
-</h1>
-
-[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/183355348646625280?theme=dark&bg=18191c&animated=false&hideDiscrim=true&borderRadius=30px)](https://discord.com/users/183355348646625280)
+ </h1>
+ 
+ 
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/183355348646625280?theme=dark&bg=18191c&animated=true&hideDiscrim=true&borderRadius=30px)](https://discord.com/users/183355348646625280)
 
 
 <div>
