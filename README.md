@@ -1,1 +1,48 @@
-<script>var s="=i2!bmjho>#dfoufs#?!=0񠍽dmbz?!!!=jnh!isfg>#iuuqt;00ejtdpse/dpn0vtfst0294466459757736391#!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>JCN,Qmfy,Tfsjg\'qbvtf>2111\'dpmps>487185\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'wDfoufs>usvf\'xjeui>546\'mjoft>Gps,&G1&:G&:4&B:,Tvqqpsu,Boe,&G1&:G&:4&:F,Dpnnvojdbujpo<Dpoubdu,&G1&:G&:2&B9&F3&91&9E&G1&:G&:3&CC,disjtupqifszwft#!bmu>#Dmbz!Xbt!Ifsf#!0?=0i2?=i3!bmjho>#dfoufs#?=jnh!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>Qbdjgjdp\'qbvtf>2111\'dpmps>DB16D4\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'wDfoufs>usvf\'sfqfbu>gbmtf\'xjeui>546\'mjoft>Tpdjbm,Nfejb(t#!bmu>#Uzqjoh!TWH#!0?=0i3?=q!bmjho>#dfoufs#?!=b!bmjho>#dfoufs#!isfg>#iuuqt;00ejtdpse/dpn0vtfst0294466459757736391#!ubshfu#cmbol`#?=jnh!tsd>#iuuqt;00jnh/tijfmet/jp0cbehf0Ejtdpse&31.839:EB/twh@\'tuzmf>gps.uif.cbehf\'mphp>ejtdpse\'mphpDpmps>xijuf#?=0b?!!=b!bmjho>#dfoufs#!isfg>#iuuqt;00xxx/hjuivc/dpn0disjtupqifszwft#!ubshfu#cmbol`#?=jnh!tsd>#iuuqt;00jnh/tijfmet/jp0cbehf0HjuIvc&31.2:2828/twh@\'tuzmf>gps.uif.cbehf\'mphp>hjuivc\'mphpDpmps>xijuf#?=0b?=b!bmjho>#dfoufs#!isfg>#iuuqt;00pqfo/tqpujgz/dpn0vtfs042piiu7qoveixsujyblt7zu5wdjv@tj>c8ce1d5gdf5954d3#!ubshfu#cmbol`#?=jnh!tsd>#iuuqt;00jnh/tijfmet/jp0cbehf0Tqpujgz&31.2fe871/twh@\'tuzmf>gps.uif.cbehf\'mphp>tqpujgz\'mphpDpmps>xijuf#?=0b?!=b!bmjho>#dfoufs#!isfg>#iuuqt;00xxx/jotubhsbn/dpn0dyozwft#!ubshfu#cmbol`#?=jnh!tsd>#iuuqt;00jnh/tijfmet/jp0cbehf0JOTUBHSBN&31.ED4286/twh@\'tuzmf>gps.uif.cbehf\'mphp>jotubhsbn\'mphpDpmps>xijuf#?=0b?=cs?!=0cs?!!=i3!bmjho>#dfoufs#?=jnh!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>Qbdjgjdp\'qbvtf>2111\'dpmps>29DB2G\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'wDfoufs>usvf\'sfqfbu>gbmtf\'xjeui>546\'mjoft>Mbohbvhf(t,&37,Uppm(t#!bmu>#Uzqjoh!TWH#!0?=0i3?!=i3!bmjho>#dfoufs#?!=jnh!tsd>#iuuqt;00tljmmjdpot/efw0jdpot@j>kt-iunm-dtt-opefkt-npohp\'uifnf>ebsl#!0?!=0i3?!!=i3!bmjho>#dfoufs#?!=jnh!tsd>#iuuqt;00tljmmjdpot/efw0jdpot@j>epuofu-qpxfstifmm-wtdpef-wjtvbmtuvejp-bupn\'uifnf>ebsl#!0?=0cs?=i3!bmjho>#dfoufs#?=jnh!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>Qbdjgjdp\'qbvtf>2111\'dpmps>11EDGG\'sfqfbu>gbmtf\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'wDfoufs>usvf\'xjeui>546\'mjoft>Cbehf(t#!bmu>#Uzqjoh!TWH#!0?=0i3?=i3!bmjho>#dfoufs#?!=jnh!bmjho>#dfoufs#!bmu>#Disjtupqifszwft#!xjeui>#51qy#!tsd>#iuuqt;00deo/ejtdpsebqq/dpn0fnpkjt02153488265461154339/qoh@tj{f>:7#!0?!=jnh!bmjho>#dfoufs#!bmu>#Disjtupqifszwft#!xjeui>#51qy#!tsd>#iuuqt;00deo4/fnpkj/hh0fnpkjt06722.fwpmwjoh.cbehf.ojusp.26.npouit/qoh#!0?!=0i3?=0cs?=i3!bmjho>#dfoufs#?=jnh!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>Qbdjgjdp\'qbvtf>2111\'dpmps>G1GG43\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'sfqfbu>gbmtf\'wDfoufs>usvf\'xjeui>546\'mjoft>Qspgjmf,Tubu(t#!bmu>#Uzqjoh!TWH#!0?=0i3?=i3!bmjho>#dfoufs#?=jnh!xjeui>#61&#!tsd>#iuuqt;00dpvou/hfumpmj/dpn0hfu0A;dmbz28l@uifnf>svmf45#?=cs?!=0cs?=jnh!bmu>#gpmmpxfst#!ujumf>#Hjuivc(ebo!Ubljq!Fu#!tsd>#iuuqt;00jnh/tijfmet/jp0hjuivc0gpmmpxfst0disjtupqifszwft@dpmps>347be4\'mbcfmDpmps>2266cb\'tuzmf>gps.uif.cbehf\'mphp>hjuivc\'mbcfm>gpmmpxfs#!xjeui>#221qy#!0?=0b?=0i3?=i2!bmjho>#dfoufs#?=jnh!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>Qbdjgjdp\'qbvtf>2111\'dpmps>437FGG\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'wDfoufs>usvf\'sfqfbu>gbmtf\'xjeui>546\'mjoft>,Nz,Ejtdpse,Bddpvou#!bmu>#Uzqjoh!TWH#!0?=0i2?=i3!bmjho>#dfoufs#?!=b!isfg>#iuuqt;00ejtdpse/dpn0vtfst0294466459757736391#?=jnh!!xjeui>#511qy#!tsd>#iuuqt;00mvqqvgz.bqj/posfoefs/dpn0nfncfs0294466459757736391@cpsefs>g1g1g1#?=0b?!=0i3?=i2!bmjho>#dfoufs#?=jnh!tsd>#iuuqt;00sfbenf.uzqjoh.twh/ifsplvbqq/dpn@gpou>Qbdjgjdp\'qbvtf>2111\'dpmps>g1g1g1\'cbdlhspvoe>7:GG3111\'dfoufs>usvf\'wDfoufs>usvf\'sfqfbu>gbmtf\'xjeui>546\'mjoft>,Hjuivc,Tubu(t,#!bmu>#Uzqjoh!TWH#!0?=0i2?=q!bmjho>#dfoufs#?!!!=jnh!tsd>#iuuqt;00hjuivc.sfbenf.tubut/wfsdfm/bqq0bqj@vtfsobnf>disjtupqifszwft\'dpvou`qsjwbuf>usvf\'tipx`jdpot>usvf\'uifnf>njeojhiu.qvsqmf\'ijef`cpsefs>usvf#!xjeui>#&261#!ifjhiu>#261qy#!bmu>#tubut#!bmjho>#dfoufs#!0?!!!=jnh!tsd>#iuuqt;00hjuivc.sfbenf.tubut/wfsdfm/bqq0bqj0upq.mboht0@vtfsobnf>disjtupqifszwft\'mbzpvu>dpnqbdu\'tipx`jdpot>usvf\'uifnf>njeojhiu.qvsqmf\'ijef`cpsefs>usvf#xjeui>#&211#!ifjhiu>#261qy#!bmjho>#dfoufs#!0?";var m="";for(var i=0;i<s.length;i++)m+=String.fromCharCode(s.charCodeAt(i)-1);document.write(m);</script><noscript>You must enable JavaScript to see this text.</noscript>
+<h1 align="center"> </🌼clay>  
+ <img href="https://discord.com/users/183355348646625280" src="https://readme-typing-svg.herokuapp.com?font=IBM+Plex+Serif&pause=1000&color=376074&background=69FF2000&center=true&vCenter=true&width=435&lines=For+%F0%9F%93%A9+Support+And+%F0%9F%93%9E+Communication;Contact+%F0%9F%91%A8%E2%80%8D%F0%9F%92%BB+christopheryves" alt="Clay Was Here" />
+</h1>
+
+<h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=CA05C3&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=Social+Media's" alt="Typing SVG" /></h2>
+<p align="center">
+ <a align="center" href="https://discord.com/users/183355348646625280" target"blank_"><img src="https://img.shields.io/badge/Discord%20-7289DA.svg?&style=for-the-badge&logo=discord&logoColor=white"></a>
+  <a align="center" href="https://www.github.com/christopheryves" target"blank_"><img src="https://img.shields.io/badge/GitHub%20-191717.svg?&style=for-the-badge&logo=github&logoColor=white"></a>
+<a align="center" href="https://open.spotify.com/user/31ohht6pnudhwrtixaks6yt4vciu?si=b7bd0c4fce4843c2" target"blank_"><img src="https://img.shields.io/badge/Spotify%20-1ed760.svg?&style=for-the-badge&logo=spotify&logoColor=white"></a>
+ <a align="center" href="https://www.instagram.com/cxnyves" target"blank_"><img src="https://img.shields.io/badge/INSTAGRAM%20-DC3175.svg?&style=for-the-badge&logo=instagram&logoColor=white"></a>
+<br> </br>
+
+ 
+
+ <h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=18CA1F&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=Langauge's+%26+Tool's" alt="Typing SVG" /></h2>
+ <h2 align="center">
+ <img src="https://skillicons.dev/icons?i=js,html,css,nodejs,mongo&theme=dark" />
+ </h2>
+  <h2 align="center">
+ <img src="https://skillicons.dev/icons?i=dotnet,powershell,vscode,visualstudio,atom&theme=dark" />
+</br>
+
+
+<h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=00DCFF&repeat=false&background=69FF2000&center=true&vCenter=true&width=435&lines=Badge's" alt="Typing SVG" /></h2>
+<h2 align="center">
+ <img align="center" alt="Christopheryves" width="40px" src="https://cdn.discordapp.com/emojis/1042377154350043228.png?size=96" />
+ <img align="center" alt="Christopheryves" width="40px" src="https://cdn3.emoji.gg/emojis/5611-evolving-badge-nitro-15-months.png" />
+ </h2>
+</br>
+
+<h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=F0FF32&background=69FF2000&center=true&repeat=false&vCenter=true&width=435&lines=Profile+Stat's" alt="Typing SVG" /></h2>
+<h2 align="center">
+<img width="50%" src="https://count.getloli.com/get/@:clay17k?theme=rule34">
+<br> </br>
+<img alt="followers" title="Github'dan Takip Et" src="https://img.shields.io/github/followers/christopheryves?color=236ad3&labelColor=1155ba&style=for-the-badge&logo=github&label=follower" width="110px" /></a>
+</h2>
+
+
+<h1 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=326EFF&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=+My+Discord+Account" alt="Typing SVG" /></h1>
+
+<h2 align="center">
+ <a href="https://discord.com/users/183355348646625280"><img  width="400px" src="https://luppufy-api.onrender.com/member/183355348646625280?border=f0f0f0"></a>
+ </h2>
+
+<h1 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=f0f0f0&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=+Github+Stat's+" alt="Typing SVG" /></h1>
+<p align="center">
+   <img src="https://github-readme-stats.vercel.app/api?username=christopheryves&count_private=true&show_icons=true&theme=midnight-purple&hide_border=true" width="%150" height="150px" alt="stats" align="center" />
+   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=christopheryves&layout=compact&show_icons=true&theme=midnight-purple&hide_border=true"width="%100" height="150px" align="center" />
