@@ -24,7 +24,7 @@
 <h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=00DCFF&repeat=false&background=69FF2000&center=true&vCenter=true&width=435&lines=Badge's" alt="Typing SVG" /></h2>
 <h2 align="center">
  <img align="center" alt="Christopheryves" width="40px" src="https://cdn.discordapp.com/emojis/1042377154350043228.png?size=96" />
- <img align="center" alt="Christopheryves" width="40px" src="https://cdn.discordapp.com/emojis/963191315049353297.gif?size=128&quality=lossless" />
+ <img align="center" alt="Christopheryves" width="40px" src="https://cdn3.emoji.gg/emojis/5611-evolving-badge-nitro-15-months.png" />
  </h2>
 </br>
 
