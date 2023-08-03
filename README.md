@@ -13,7 +13,7 @@
  <img src="https://skillicons.dev/icons?i=js,html,css,nodejs,mongo&theme=dark" />
  </h2>
   <h2 align="center">
- <img src="https://skillicons.dev/icons?i=dotnet,powershell,vscode,visualstudio,atom&theme=dark" />
+ <img src="https://skillicons.dev/icons?i=dotnet,powershell,vscode,visualstudio&theme=dark" />
 </br>
 
 
