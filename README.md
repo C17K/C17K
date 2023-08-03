@@ -23,8 +23,12 @@
 
 <h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=00DCFF&repeat=false&background=69FF2000&center=true&vCenter=true&width=435&lines=Badge's" alt="Typing SVG" /></h2>
 <h2 align="center">
- <img align="center" alt="Christopheryves" width="40px" src="https://cdn.discordapp.com/emojis/1042377154350043228.png?size=96" />
- <img align="center" alt="Christopheryves" width="40px" src="https://cdn3.emoji.gg/emojis/5611-evolving-badge-nitro-15-months.png" />
+  <img align="center" alt="Christopheryves" width="40px" src="https://www.seekpng.com/png/full/49-499889_balancelogo-discord-hypesquad-house-of-balance.png" />
+  <img align="center" alt="Christopheryves" width="40px" src="https://cdn.discordapp.com/emojis/1042377154350043228.png?size=96" />
+  <img align="center" alt="Christopheryves" width="40px" src="https://static.wikia.nocookie.net/discord/images/e/ea/Nitro.png/revision/latest?cb=20210105222501" />
+  <img align="center" alt="Christopheryves" width="40px" src="https://cdn3.emoji.gg/emojis/5611-evolving-badge-nitro-15-months.png" />
+  <img align="center" alt="Christopheryves" width="40px" src="https://www.followchain.org/wp-content/uploads/2023/06/icons8-hashtag-330.png" />
+
  </h2>
 </br>
 
