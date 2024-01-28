@@ -17,30 +17,10 @@
 </br>
 
 
-<h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=00DCFF&repeat=false&background=69FF2000&center=true&vCenter=true&width=435&lines=Badge's" alt="Typing SVG" /></h2>
-<h2 align="center">
-  <img align="center" alt="biopsi" width="40px" src="https://www.seekpng.com/png/full/49-499889_balancelogo-discord-hypesquad-house-of-balance.png" />
-  <img align="center" alt="biopsi" width="40px" src="https://cdn.discordapp.com/emojis/1042377154350043228.png?size=96" />
-  <img align="center" alt="biopsi" width="40px" src="https://static.wikia.nocookie.net/discord/images/e/ea/Nitro.png/revision/latest?cb=20210105222501" />
-  <img align="center" alt="biopsi" width="40px" src="https://cdn3.emoji.gg/emojis/5611-evolving-badge-nitro-15-months.png" />
-  <img align="center" alt="biopsi" width="40px" src="https://www.followchain.org/wp-content/uploads/2023/06/icons8-hashtag-330.png" />
-
- </h2>
-</br>
-
 <h2 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=F0FF32&background=69FF2000&center=true&repeat=false&vCenter=true&width=435&lines=Profile+Stat's" alt="Typing SVG" /></h2>
 <h2 align="center">
 <img width="50%" src="https://count.getloli.com/get/@:clay17k?theme=rule34">
 <br> </br>
-<img alt="followers" title="Github'dan Takip Et" src="https://img.shields.io/github/followers/biopsi?color=236ad3&labelColor=1155ba&style=for-the-badge&logo=github&label=follower" width="110px" /></a>
-</h2>
-
-
-<h1 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=326EFF&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=+My+Discord+Account" alt="Typing SVG" /></h1>
-
-<h2 align="center">
- <a href="https://discord.com/users/183355348646625280"><img  width="400px" src="https://luppufy-api.onrender.com/member/183355348646625280?border=f0f0f0"></a>
- </h2>
 
 <h1 align="center"><img src="https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=f0f0f0&background=69FF2000&center=true&vCenter=true&repeat=false&width=435&lines=+Github+Stat's+" alt="Typing SVG" /></h1>
 <p align="center">
